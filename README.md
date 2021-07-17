@@ -7,5 +7,8 @@ I like to learn different programming languages :).<br>
 
 
 ### More Information on me!!
-I currently only know lua and python although slowly progressing to learn other languages to improve my knowledge.<br>
-I have little experiece with Java but would also like to expand my knowledge on that.
+At this current time I only know two languages at this current time and those are lua and python.<br>
+I mainly like working on small projects to mess around and have fun with.<br>
+You can find me on discord most the time (Smile Man#3279) so feel free to ask me any questions. (my dms are always on lol)<br>
+
+(Amogus sheeeeeesh)
